@@ -1,0 +1,1 @@
+gedanken sind leer
